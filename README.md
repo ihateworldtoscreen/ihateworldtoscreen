@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ihateworldtoscreen
+- 👀 I’m interested in fucking nothing
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: You don't
